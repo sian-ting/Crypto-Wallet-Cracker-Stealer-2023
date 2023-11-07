@@ -1,7 +1,7 @@
 # Crypto-Wallet-Cracker-Stealer-2023
 
 
-Welcome to Crypto Wallet Cracker, the innovative application for automated crypto wallet stealing, designed exclusively for the **Windows operating system!** If you have any issues with software [cliсk here](https://t.me/CryptoxHacker)
+Welcome to Crypto Wallet Cracker, the innovative application for automated crypto wallet stealing, designed exclusively for the **Windows operating system!** If you have any issues with software [cliсk here](https://t.me/crypto_wallet_cracker)
 
 To earn with our software easy and stable!💰
 
@@ -102,7 +102,7 @@ All as individual as possible. Sometimes a day absolutely nothing finds, even a 
 
 ## SUPPORT ℹ️
 
-https://t.me/CryptoxHacker
+https://t.me/crypto_wallet_cracker
 
 
 ## **What Others Are Saying 💯**
